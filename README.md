@@ -1,4 +1,5 @@
 ### Hi there 👋
+### This is a site for personal musings, crises, and developments.
 
 <!--
 **cafolau/cafolau** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
