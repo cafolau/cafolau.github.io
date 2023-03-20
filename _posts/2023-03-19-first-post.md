@@ -4,7 +4,7 @@ layout: post
 author: christian
 ---
 
-![Heidelberg Castle](assets/heidelberg.jpg))
+![Heidelberg Castle](assets/heidelberg.jpg)
 
 "Oh my gosh, how are you? Crazy to see you all the way out here. Wasn't that traffic a nightmare? Gosh, how many years has it been?"
 
