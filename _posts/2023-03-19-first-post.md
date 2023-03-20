@@ -4,6 +4,8 @@ layout: post
 author: christian
 ---
 
+![Heidelberg Castle](assets/heidelberg.jpg))
+
 "Oh my gosh, how are you? Crazy to see you all the way out here. Wasn't that traffic a nightmare? Gosh, how many years has it been?"
 
 What if you could greet yourself like a close friend from college? A friend you love and parted amicably with in order to pursue the next phases of your lives. Nothing dramatic went down—there was no fighting, no pushing other away. You called regularly, always eager to hear what they were up to, felt your heart swell with pride as you heard about the life they were building for themselves. Eventually those calls petered out in frequency as your new lives expanded to occupy ever more of your bandwidth. After years, they're unexpectedly standing in front of you again, greeting you with warmth and affection as if it's been no time at all. 
