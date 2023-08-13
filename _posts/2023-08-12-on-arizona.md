@@ -8,6 +8,7 @@ author: christian
 
 What if Arizona is more beautiful than I thought?
 
+
 I’m sitting in a Panera Bread, the one near Chandler Fashion place mall. Next door is my favorite Target, and behind that one of the Costcos I most often visit. I wanted to listen to Taylor Swift’s 1989, so I picked up where I left off at Wonderland. Then You Are In Love came on. I’m working on the words to articulate how that song makes me feel. It’s like a peace, like a coming home, like a contentment I’d happily allow to go on without self-destructing it myself. Usually, I listen to it and imagine what it’d be like to be in love, to have a marriage, to have a partner. But this afternoon, it’s lead me to reflection on my last two years living in Arizona.
 
 I never truly meant to come here. After my summer 2020 internship, my company gave me a job offer, which I promptly accepted. The world was an uncertain, dark place for me at that time. Both the pandemic and my struggle with my orientation made the future clouded, a terrible leet down after a blissful summer that can only be described as the kiss of sun’s rays dancing across my face while I bask in their warmth, laying in the grass of a quiet park. Things became so dark for me in fall 2020, a job in Arizona was a sure bet. And so I left everyone and everything I knew—again—and moved to what I saw as a holding pattern while I figured my real life out.
