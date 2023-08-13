@@ -4,7 +4,7 @@ layout: post
 author: christian
 ---
 
-![Mount Lemmon Selfie](/assets/IMG_3935.jpg)
+![Mount Lemmon Selfie](/assets/IMG_3935.jpeg)
 
 What if Arizona is more beautiful than I thought?
 
@@ -15,7 +15,7 @@ I never truly meant to come here. After my summer 2020 internship, my company ga
 
 For a long time, I never really invested in building a life here. I’d always meant to get out of Arizona within a few years. At the very least I’d move back to my friends and family in Utah, maybe around Salt Lake. I never really changed that policy, though I perhaps evolved it. Despite seeing Arizona as a stepping stone, I don’t feel like these two years have been a waste. I did imagine I’d feel more ready to find a relationship by the time I left. I don’t. But there are some other ways I think I’ve grown.
 
-![Mount Lemmon Overlook](/assets/IMG_3938.jpg)
+![Mount Lemmon Overlook](/assets/IMG_3938.jpeg)
 
 Moving from my very walkable college campus lifestyle, I have gained a lot of weight. But I think maybe I’m better at not hating my body? Once in a while, I see pictures of me from my time at BYU and realize I was hot, even though I didn’t feel like it at the time and still don’t now. I’ve learned not to be aware of my new dimensions in a way that drives me mad. I can notice the weight of my belly shift as I roll over in bed and remind myself of all the hardships, fears, and unknowns my body has carried me through and appreciate it. I feel far from beautiful, but I have learned in Arizona I deserve to treat my body with more kindness.
 
@@ -27,4 +27,4 @@ There are things I’m going to miss here. Evening walks around Tumbleweed park�
 
 Arizona was always meant to be a stepping stone, a springboard into the bigger, „realer“ life I’d build for myself after gaining some economic stability. It has been that, and it has been more. I did not anticipate being able to reflect on my time here with any sense of nostalgia, a respectful appreciation for what Arizona has been for me, or a melancholic excitement for the future ahead of me. I am not yet everything I will become, everything I want to be. I am still building my life, but I am also living it. 
 
-![First Boeing 777 Ever Built](/assets/IMG_3844.jpg)
+![First Boeing 777 Ever Built](/assets/IMG_3844.jpeg)
