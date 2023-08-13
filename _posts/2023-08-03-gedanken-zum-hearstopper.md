@@ -4,7 +4,7 @@ layout: post
 author: christian
 ---
 
-![Hearstopper Cover Photo](/assets/hearstopper_cover.jpg)
+![Heartstopper Cover Photo](/assets/heartstopper_cover.jpg)
 
 In honor of Heartstopper's season two premier, here's some thoughts I gathered on Heartstopper's personal impact on me last year when I'd first watched season one.
 
@@ -30,7 +30,7 @@ Social media content crushing on Kit Connor or Joe Locke makes me very uncomfort
 
 Charlie and Nick’s relationship brings back a lot of feelings and crushes I had when I was their age. Seeing how healthily and equally invested they handle their relationship helps me to honor the feelings of love and respect and desire for emotional intimacy I’ve experienced. I can recognize them as natural and healthy, and allow myself to enjoy the memory of them. In this way, maybe I can allow my inner child to heal.
 
-![Nick Draws Smile on Charlie's Hand](/assets/heartstopper_smiledraw.jpg)
+![Nick Draws Smile on Charlie's Hand](/assets/hearstopper_smiledraw.jpg)
 
 _Übrigens, that pen is a Kaweco Perkeo in Jungle Green. Yes, I bought one._
 
