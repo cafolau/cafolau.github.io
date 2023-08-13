@@ -6,7 +6,7 @@ author: christian
 
 ![Heartstopper Cover Photo](/assets/heartstopper_cover.jpg)
 
-In honor of Heartstopper's season two premier, here's some thoughts I gathered on Heartstopper's personal impact on me last year when I'd first watched season one.
+In honor of Heartstopper's season two premier, here's some thoughts I gathered last year on Heartstopper when I'd first watched season one.
 
 
 After watching season one of Hearstopper twice last week, I'm now coming off the emotional high I felt through watching Nick and Charlie’s story. This beautiful series touched me, bringing me new hope and perhaps new healing that I’m not sure I’ve ever felt before. I’m so grateful to Alice Oseman for creating this story and sharing it with us. Heartstopper has helped me to more productively manage and understand my emotions, become more secure in my orientation, recognize and heal emotional pain from growing up, and better apply self-compassion.
