@@ -4,7 +4,7 @@ layout: post
 author: christian
 ---
 
-![Hearstopper Cover Photo](/assets/hearstopper_cover.png)
+![Hearstopper Cover Photo](/assets/hearstopper_cover.jpg)
 
 In honor of Heartstopper's season two premier, here's some thoughts I gathered on Heartstopper's personal impact on me last year when I'd first watched season one.
 
@@ -16,7 +16,7 @@ I felt so much joy watching Heartstopper. And I realized today that I was drawin
 
 Only yesterday did I realize that those warm feelings would have to give way to some emptiness (not that it’s a new thing, I just get surprised every time). I’d felt it already while watching--joy that kids these days would have better representation, some sadness that I didn’t and wondering what might’ve been if I’d had. It’s not a hopeless or debilitating emptiness though. It feels like an appropriately solemn recognition of missed opportunities. But it does leave me wondering questions like, “If I had an opportunity for that loving, equal kind of partnership right now, would I be ready to let such love in? What does it even mean to let love/someone into my heart? How can I be ready for such an opportunity?”
 
-![Heartstopper Hall Scene](/assets/heartstopper_hall.png)
+![Heartstopper Proper Nerd Scene](/assets/heartstopper_nerd.png)
 
 #“It’s always been boys.”
 Growing up, I’d often lay in bed at night daydreaming scenarios with fictional characters to escape my life. I’d imagine Artemis Fowl as my protective older brother whom I could lean on, Tom Riddle as a close friend who betrayed me when he became Voldemort, or Alex Rider as my best friend and the spy looking out for me. When I was particularly young, I even dreamt of Christopher Robin. I realized after coming out that I wasn’t imagining these characters as brothers or friends, though that was the only language I had to articulate the ideas at the time. I was imagining them as partners.
