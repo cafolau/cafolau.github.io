@@ -11,7 +11,8 @@ In honor of Heartstopper's season two premier, here's some thoughts I gathered o
 
 After watching season one of Hearstopper twice last week, I'm now coming off the emotional high I felt through watching Nick and Charlie’s story. This beautiful series touched me, bringing me new hope and perhaps new healing that I’m not sure I’ve ever felt before. I’m so grateful to Alice Oseman for creating this story and sharing it with us. Heartstopper has helped me to more productively manage and understand my emotions, become more secure in my orientation, recognize and heal emotional pain from growing up, and better apply self-compassion.
 
-#Living vicariously, but not really
+##Living vicariously, but not really##
+
 I felt so much joy watching Heartstopper. And I realized today that I was drawing those feelings vicariously through Nick and Charlie as their relationship developed, they came into themselves (particularly Nick who had to confront his orientation for the first time), and they built their relationship together. I realized that part of why I watched it again so soon was to remain on that emotional high of experiencing through Nick and Charlie the kind of relationship I wish I’d had at that age and that I still want.
 
 Only yesterday did I realize that those warm feelings would have to give way to some emptiness (not that it’s a new thing, I just get surprised every time). I’d felt it already while watching--joy that kids these days would have better representation, some sadness that I didn’t and wondering what might’ve been if I’d had. It’s not a hopeless or debilitating emptiness though. It feels like an appropriately solemn recognition of missed opportunities. But it does leave me wondering questions like, “If I had an opportunity for that loving, equal kind of partnership right now, would I be ready to let such love in? What does it even mean to let love/someone into my heart? How can I be ready for such an opportunity?”
