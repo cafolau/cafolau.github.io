@@ -6,6 +6,7 @@ layout: post
 
 Today, I learned Panera is discontinuing its Charged Lemonade beverages. And I teared up at the news.
 
+
 When I moved to Arizona in July 2021, I sought out places to be that weren't my house or workplace and had air conditioning. It was during that phase that I discovered the Valley was dotted with Panera Bread cafes. I had loved Panera as a kid, but there were only a few located far from my hometown. Panera was a special treat, something we could do for a birthday or a class trip. While I studied in Utah, there were no Paneras despite a plethora of other sandwich shops to choose from. Panera had air conditioning, WiFi, a fun menu, and felt like a childhood treat.
 
 I spent a lot of time and money going to Panera over the next two years of living in Arizona. Sometimes I just ate and left to run other errands. Often I combined it with a trip to Trader Joe's next door. I'd call friends and family or catch up on correspondence with loved ones. I'd journal about my day. I applied to jobs. I watched shows. I applied to grad school in Germany. I pondered what kind of life I wanted to live. I asked myself questions like, "Will anybody ever love me?"
