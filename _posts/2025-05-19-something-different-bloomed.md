@@ -26,8 +26,12 @@ Part of her legacy is crafting me into someone who can survive this, someone who
 On this first anniversary of my mother's passing, I find myself abashed to acknowledge that my strength in any way parallels or measures up to hers—my therapist thinks this is silly. People have told me my mother lives on through me—which I think is silly. She is dead. But I do believe that I can live to honor her. I like to imagine that if I could talk to her, she'd be 27—her age at my birth, my age now. We'd talk about our lives as peers, rather than parent to child. We'd make each other confront our strengths and good qualities. When it came time to leave, we'd quote the Taylor Swift album she'll have to wait 25 years to hear again:
 
 >_You've got no reason to be afraid_
+>
 >_You're on your own, kid_
+>
 >_Yeah, you can face this_
+>
 >_You're on your own, kid_
+>
 >_You always have been._
 
