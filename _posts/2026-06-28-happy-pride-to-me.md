@@ -7,6 +7,7 @@ layout: post
 
 I was just toweling off tonight after a bubble bath when I heard my phone ring. I thought it might be a friend following up about a message regarding a proposed backpacking trip. It was 9:12 PM. I saw my dad's name on the phone. It's a rude time of night to be calling, so I answer in case something's wrong.
 
+
 Nothing is wrong. My dad hollers into my ear. I turn down the volume. I wonder why he is speaking so loudly, in the voice he'd use to perform fatherhood or priesthood worthiness at church functions. He is saying something about wishing he hadn't sold a Volkswagen several years ago. I retreat into myself, letting a subroutine manage the conversation. He express sorrow at having sold yet another Volkswagen, also years ago.
 
 He has traded many a Volkswagen. Many remain at his home in Michigan. My home. "It seems like selling might be the biggest regret you have about cars," my subroutine observes. "Yes," is his reply. I think of the suffering he put my mother through in buying those cars.
