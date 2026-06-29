@@ -3,7 +3,7 @@ title: "Happy Pride to Me"
 author: christian
 layout: post
 ---
-![Silver Lake Cover Photo](assets/48AD6764-FD9C-4D72-88BA-B57D38DA8EC6_1_102_o.jpeg)
+![Silver Lake Cover Photo](/assets/48AD6764-FD9C-4D72-88BA-B57D38DA8EC6_1_102_o.jpeg)
 
 I was just toweling off tonight after a bubble bath when I heard my phone ring. I thought it might be a friend following up about a message regarding a proposed backpacking trip. It was 9:12 PM. I saw my dad's name on the phone. It's a rude time of night to be calling, so I answer in case something's wrong.
 
