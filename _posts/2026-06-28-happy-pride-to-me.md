@@ -12,11 +12,11 @@ Nothing is wrong. My dad hollers into my ear. I turn down the volume. I wonder w
 
 He has traded many a Volkswagen. Many remain at his home in Michigan. My home. "It seems like selling might be the biggest regret you have about cars," my subroutine observes. "Yes," is his reply. I think of the suffering he put my mother through in buying those cars.
 
-"What's new with you? What have you been doing?" he asks. My subroutine is not prepared for him to inquire about me. I reassume control. An easy lie comes to mind. Then, a half truth. Then, a novel idea——try trusting him. Expose myself on a vulnerable subject. "Oh, today I was just celebrating five years since I came out."
+"What's new with you? What have you been doing?" he asks. My subroutine is not prepared for him to inquire about me. I reassume control. An easy lie comes to mind. Then, a half truth. Then, a novel idea—try trusting him. Expose myself on a vulnerable subject. "Oh, today I was just celebrating five years since I came out."
 
 "Okay," he replies. He then tells me he's listening to AI-generated reggae on the subwoofer in the car he's driving. I feel myself retreat again. He tells me he'll be in St. George for another week. "That'll be nice. Have you had to deal with much smoke from the wildfires down there?" my subroutine asks. I'm no longer retreating. I'm slipping under a wave, water rushing into my nose, my mouth. My father tells me about yet another Volkswagen in a barn in Michigan that he's going to fix. The water clouds over, blotting out the light.
 
-"I'd better let zou go, love you," I hear. He hasn't told me he loves me without someone else observing since...
+"I'd better let you go, love you," I hear. He hasn't told me he loves me without someone else observing since...
 
 The call ends. I gasp.
 
